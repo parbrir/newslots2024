@@ -6,7 +6,7 @@
 
 1. **[ARKADA CASINO](https://clck.ru/3Hr27o "ARKADA CASINO")**
 2. **[R7 CASINO](https://clck.ru/3HsT58 "R7 CASINO")**
-3. **[KOMETA CASINO](https://clck.ru/3HsSpx "KOMETA CASINO")**
+3. **[KOMETA CASINO](https://clck.ru/3JHf2X "KOMETA CASINO")**
 4. **[CAT CASINO](https://clck.ru/3HsTGi "CAT CASINO")**
 5. **[DADDY CASINO](https://clck.ru/3HsTSj "DADDY CASINO")**
 
